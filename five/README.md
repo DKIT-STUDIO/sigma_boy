@@ -1,0 +1,3 @@
+# И так 30 раз....
+
+![image](https://github.com/user-attachments/assets/056599ed-eff3-42af-9c93-a0246b6f642d)
